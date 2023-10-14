@@ -1,2 +1,2 @@
-# 7-supl-cios
-Ci sarà sempre qualcuno che ti farà sentire meno capace, ma i tuoi sforzi potrebbero valere qualcosa se c’è giustizia
+# 7
+There will always be someone who makes you feel less capable, but your efforts may be worth something if there is justice
