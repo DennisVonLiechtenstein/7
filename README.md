@@ -1,2 +1,2 @@
 # 7
-The absurdity of effective productive mediocrity.
+trabalhe como nunca,fracasse como sempre.
