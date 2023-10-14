@@ -1,2 +1,2 @@
 # 7
-The absurdity of productive mediocrity.
+The absurdity of effective productive mediocrity.
